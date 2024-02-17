@@ -1,2 +1,2 @@
-sorarinbin.github.ioでは、
+sorarinbon.github.ioでは、
 ブログのホームページを公開しています...
